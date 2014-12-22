@@ -36,7 +36,6 @@ This keyboarded and encoded edition of the
 
 #####Front#####
 
-DAPHN-AMARYLLIS.Authore Davide Humio Theagrio, Wedderburnensi.—CEDITE, quicquidOrbis habet, nec mag
 1. IACOBO BRITAN-NIARVM, ET GALLIARVM REGI verè maximo, salutem verè maximam.
 
 1. Ad Librum.
